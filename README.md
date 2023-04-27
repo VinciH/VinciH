@@ -1,5 +1,5 @@
-### Hi there 👋
-
+### Hi there 👋I'm Vinciane and I'm in SAYNA.It's a digital school to learn all digital jobs with a good family sipirit and game way. I have a big interest in technology ,Information and Communication. I'm so proud to have been accepted in the community of SAYNA.
+How to reach me: vincihents@gmail.com
 <!--
 **VinciH/VinciH** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
